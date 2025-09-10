@@ -1,1 +1,0 @@
-# nbatensamayoa_lab2
